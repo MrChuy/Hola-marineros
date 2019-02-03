@@ -1,2 +1,3 @@
-# Hola-marineros
-Ingreso de nueva gente
+# Hola marineros
+
+Bienvenid@ al Barcos&Putas looooooocoooooooooooo!!!!!!!
